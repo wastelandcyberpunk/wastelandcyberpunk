@@ -1,12 +1,14 @@
 ## welcome to the wasteland ( ˶°ㅁ°) !!
 
-**hi** im jason (or u can call me adam)..,, um i hate being interacted with Sorry.
+**hi** we're the prodigalfire sys !!! most of us dont like contact, but always read displays for int status !! some of us are more friendly.,, **most** of this is written by and for *host*, jason, but scroll a little for our rentries with better info about us!!
 
 **do not** touch unless we're friends, **do not** c/h unless partner or i say u can
 
 whisper me if u like my fit, ill likely respond but i have social anxiety disorder so if i appear to be online and arent replying im probably intentionally ignoring you, sorry
 
 **‎꜀( ꜆-ࡇ-)꜆ ᶻ 𝗓 𐰁**
+
+[cohost/frankies rentry](https://rentry.co/bananachocolate) , [victors rentry](https://rentry.co/victorsbow) , [sams rentry](https://rentry.co/lovecalling) **,** all other skins are host OR they dont have a rentry at the time!!
 
 ***
 
@@ -20,7 +22,7 @@ whisper me if u like my fit, ill likely respond but i have social anxiety disord
 
 **───── ⋆⋅☆⋅⋆ ─────**
 
-**21 pilots, billy idol, cookie run**, bfdi/ii, lucky star, the big bang theory + some other stuff
+**21 pilots, billy idol, cookie run**, bfdi/ii, forsaken, lucky star, the big bang theory + some other stuff
 
 clikkies and idolizers please int with me itll solve world hunger /nsrs
 
@@ -28,7 +30,7 @@ clikkies and idolizers please int with me itll solve world hunger /nsrs
 
 ## DNI
 
-general criteria, sparkherb, proship/darkship, chuck e cheese yumes (im nonsharing) allistic neurotypicals, dry texters, the likesorts
+general criteria, sparkherb, proship/darkship, allistic neurotypicals, dry texters, heavy typing quirks, the likesorts
 
 ## THIN ICE
 
@@ -36,15 +38,17 @@ hazbin hotel, homestuck, 17>
 
 ## BOUNDARIES 
 
-> do not ask for my discord, i dont give it out cuz dms give me extreme anxiety
+> some of us may give out our discord, however dont expect other fronters to respond even if you were originally given it by us
 
-> do follow me on twitter, i follow back
+> do follow us on twitter, we follow back
 
-> dont boop me please, it just kinda pesters me
+> dont boop us please, it just kinda pesters us
 
-> im 'low functioning' autistic, im gonna act weird and cringe and if youre gonna be a little baby about it fuck right off
+> we're 'low functioning' autistic, we gonna act weird and cringe
 
-> i struggle with empathy a lot, im very likely sociopathic, sorry if i act emotionally unavailable LOL
+> we struggle with empathy a lot, we're very likely sociopathic, sorry if we act emotionally unavailable LOL
+
+> some of us are here to make friends, others to just talk, again dont expect all fronters to interact!
 ‎
 ***
 
